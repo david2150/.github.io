@@ -1,2 +1,2 @@
 # .github.io
-lif is but a dream
+Life is but a dream
